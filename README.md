@@ -1,0 +1,1 @@
+# fonepaw-dotrans-serial-key
